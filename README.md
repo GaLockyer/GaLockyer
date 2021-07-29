@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GaLockyer
-- 👀 I’m interested in ...Painting
+- 👀 I’m interested in ...painting portraits
 - 🌱 I’m currently learning ...psychology
 - 💞️ I’m looking to collaborate on ...research and stats
 - 📫 How to reach me ...
